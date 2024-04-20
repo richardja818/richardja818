@@ -2,7 +2,7 @@
 - 👀 I’m interested in Web3
 - 🌱 I’m currently learning Solana
 - 💞️ I’m looking to collaborate on noval web3 projects
-- 📫 How to reach me richardja818ATGMAILDOTCOM
+- 📫 How to reach me richardja818ATGMAILDOTCOM, if you know what this means
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 

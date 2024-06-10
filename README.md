@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on noval web3 projects
 - 📫 How to reach me richardja818ATGMAILDOTCOM, if you know what this means
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: SOL goes to moon
 
 <!---
 richardja818/richardja818 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
